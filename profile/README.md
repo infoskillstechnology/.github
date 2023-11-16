@@ -39,6 +39,6 @@ Experience the future with our AI and ML projects. Leverage the power of artific
 Ready to embark on a journey of digital transformation? Contact InfoSkills Technology today for unparalleled technology solutions. Let's shape the future together! 🌐🚀
 
 *Stay Connected:*
-- **Email:** info@infoskillstechnologytechnology.com
-- **Website:** [www.infoskillstechnologytechnology.com](https://www.infoskillstechnologytechnology.com)
-- **Follow us on:** [LinkedIn](https://www.linkedin.com/company/infoskillstechnologytechnology-technology) | [Twitter](https://twitter.com/infoskillstechnologytechnology_tech) | [Instagram](https://www.instagram.com/infoskillstechnologytechnology_technology)
+- **Email:** info@infoskillstechnology.org
+- **Website:** [www.infoskillstechnologytechnology.com](https://www.infoskillstechnology.com)
+- **Follow us on:** [LinkedIn](https://www.linkedin.com/company/infoskillstechnology-technology) | [Twitter](https://twitter.com/infoskills_tech) | [Instagram](https://www.instagram.com/infoskillstechnology)
