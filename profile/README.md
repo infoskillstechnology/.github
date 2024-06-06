@@ -40,5 +40,5 @@ Ready to embark on a journey of digital transformation? Contact InfoSkills Techn
 
 *Stay Connected:*
 - **Email:** info@infoskillstechnology.org
-- **Website:** [www.infoskillstechnologytechnology.com](https://www.infoskillstechnology.com)
+- **Website:** [www.infoskillstechnology.com](https://www.infoskillstechnology.com)
 - **Follow us on:** [LinkedIn](https://www.linkedin.com/company/infoskillstechnology-technology) | [Twitter](https://twitter.com/infoskills_tech) | [Instagram](https://www.instagram.com/infoskillstechnology)
